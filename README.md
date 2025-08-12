@@ -1,4 +1,4 @@
-# ** Opa, meu nome é Bruno (Brunex).
+# ** Opa, meu nome é Bruno...
 * Estudo na melhor escola:EEEP.Deputado Roberto Mesquita.DRM.
 * Tenho 15 anos de idade.
  # Gosto de:
